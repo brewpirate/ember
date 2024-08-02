@@ -4,7 +4,7 @@ Hello! This is Ember whom I have been so blessed to have in my life the last 4 y
 
 Everything went well until a few years ago and I lost my job after a brain injury, life quickly changed for both of us and his stable environment quickly became anything but. We left Oregon and started a new life in Wichita however since being around cats, chickens and squirrels on a daily basis his prey drive has grown to a level that is no longer sustainable and unfortunately crossed a line with a cat. For the safety of other animals Ember needs to find a new home which I am unable to provide at this time.
 
-He has been the best companion and friend so this is a very difficult decision but he deserves an opportunity at the best life possible. He has been an amazing friend so I want to ensure he goes to a loving home where he can continue to grow making new friends and memories. For the right match I’m willing to drive and meet you halfway as well make a contribution to your local rescue.
+He has been the best companion and friend so this is a very difficult decision but he deserves an opportunity at the best life possible. He has been an amazing friend so I want to ensure he goes to a loving home where he can continue to grow making new friends and memories.  For the right match I’m willing to drive and meet you halfway as well as  request you to make a contribution to your local animal rescue as a rehoming fee.
 
 Ember is:
 - Intelligent 
